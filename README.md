@@ -15,8 +15,6 @@ Brian is currently seeking contracts, freelance work, and is open to salary or h
 
 📫 How to reach me: You can reach me via email at bjutz89@gmail.com or through my GitHub repo for project collaborations.
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: I created and managed an independent music brand, The Beat Mob, and have worked on multiple underground projects in the Louisville hip-hop scene.
 
 <!--
